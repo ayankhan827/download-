@@ -6,7 +6,7 @@ CyberLink PowerDirector is a video editing software developed by CyberLink, desi
 
 # ✔🎉🚀  ➤➤ *[Download_CyberLink PowerDirector Crack](https://git-community.info/dl)*
 
-# Key Features
+# Key Features:
 
 ✅ **Multi-Track Editing** – Timeline-based editing with multiple tracks for video, audio, and effects.
 
